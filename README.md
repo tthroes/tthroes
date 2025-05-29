@@ -1,6 +1,6 @@
-## KOI
+## ⋆｡𖦹°⭒˚｡⋆ . . . KOI
 
-**ABOUT ME**
+**☆ ABOUT ME**
 
 - he/him ONLY.
 - I prob wont interact first, but feel free to interact! :)
