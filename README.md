@@ -10,5 +10,5 @@
 <img width="336" height="361" alt="image" src="https://github.com/user-attachments/assets/fbf5fa3d-28f5-4cb3-84e5-7e96f6215368" />
 <img width="459" height="346" alt="image" src="https://github.com/user-attachments/assets/ef48b9d1-0728-4dbe-9fcf-bdb1a006d60b" />
 
-## PRICEs . . .
+## PRICES . . .
 <img width="645" height="366" alt="image" src="https://github.com/user-attachments/assets/3809b000-35e2-4ebf-91ff-1d75d3aca2ac" />
