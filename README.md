@@ -7,7 +7,7 @@
 - If you saw me on pony town or srp, hello!!!!!!!
 - I don't have a dni.
   
-https://i.pinimg.com/736x/f5/8a/49/f58a4926f50669499d0d6e0099034157.jpg
+<img width="1000" height="563" alt="image" src="https://github.com/user-attachments/assets/3c7bc2a4-65c2-4da3-83d6-d52f4ac768bb" />
 
 ## PORTFOLIO
 
